@@ -26,5 +26,3 @@ Abra levemente as asas puxando-as para os lados com cuidado.
 ✅ Dica
 Se você fizer 1.000 Tsurus, segundo a lenda japonesa, um desejo será realizado! ✨
 
-
-![](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.istockphoto.com%2Fbr%2Ffotos%2Forigami-tsuru&psig=AOvVaw2ROUNtrmIwtLG2ePfm624o&ust=1747337120934000&source=images&cd=vfe&opi=89978449&ved=0CBQQjRxqFwoTCLjnrcPYo40DFQAAAAAdAAAAABAE)
